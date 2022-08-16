@@ -1,7 +1,8 @@
 ## Andrea Santos
 
 
-![foto](https://user-images.githubusercontent.com/71380725/184993667-46f829ce-bae8-48f3-b53f-4568090015cd.jpeg)
+
+![foto](https://user-images.githubusercontent.com/71380725/184994269-d40d8fe0-a1dd-452b-b80c-46f2e1027451.jpeg)
 
 
 
